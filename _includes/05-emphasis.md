@@ -1,1 +1,7 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+*Every moment is a fresh beginning*
+
+
+**Aspire to inspire before we expire**
+
+
+_The way to get **started** is to quit talking and begin doing._
